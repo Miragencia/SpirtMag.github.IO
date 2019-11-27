@@ -1,0 +1,1 @@
+# SpirtMag.github.IO
